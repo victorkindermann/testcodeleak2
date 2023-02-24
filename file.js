@@ -1,0 +1,1 @@
+vtexappkey-testevtex-VWGWCN
